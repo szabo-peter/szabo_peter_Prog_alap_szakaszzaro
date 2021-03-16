@@ -1,0 +1,1 @@
+# szabo_peter_Prog_alap_szakaszzaro
